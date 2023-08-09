@@ -25,3 +25,13 @@
 
 <h3 align="left">Support:</h3>
 <p><a href="https://www.buymeacoffee.com/nebelrebell"> <img align="left" src="https://cdn.buymeacoffee.com/buttons/v2/default-yellow.png" height="50" width="210" alt="nebelrebell" /></a></p><br><br>
+<br />
+<p>🔻🔻🔻<br />
+<span style="font-family:Comic Sans MS,cursive">Nebelbank.net<br />
+The Power of Perfection<br />
+Don&rsquo;t flame without brain!<br />
+Your Satisfaction is our Achievement!</span><br />
+🔺🔺🔺</p>
+
+<p>#nebelkrieger #multigamingcommunity #nebelbanknet #dontflamewithoutbrain #gamingcommunity #communication #hobbygaming #streamingcommunity #dedicatedservers #sponsoring #giveaways #fairplaygaming #teamplay #since1997 #pclifehacks #freegames #legalgaming</p>
+#nebelkrieger #multigamingcommunity #nebelbanknet #dontflamewithoutbrain #gamingcommunity #communication #hobbygaming #streamingcommunity #dedicatedservers #sponsoring #giveaways #fairplaygaming #teamplay #since1997 #pclifehacks #freegames #legalgaming</p>
